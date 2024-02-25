@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @f8dor2
+- 👀 I’m interested in everything
